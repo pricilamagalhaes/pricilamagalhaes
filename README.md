@@ -14,6 +14,7 @@ Sobre Mim 🧑‍💻
 Curiosidades Divertidas 🎉
 
 \- Não tenho bichos, matei até meu Tamagoshi! Foi sem querer!.
+\- Amo papelaria e sou plannerista raiz! (nem tudo é perfeito!)
 \- Sonho em conhecer o mundo, mas detesto viagens longas e queria que já existisse um transportador de matéria.
 
 Objetivos ao Terminar o Curso
