@@ -14,12 +14,14 @@ Sobre Mim 🧑‍💻
 Curiosidades Divertidas 🎉
 
 \- Não tenho bichos, matei até meu Tamagoshi! Foi sem querer!.
+
 \- Amo papelaria e sou plannerista raiz! (nem tudo é perfeito!)
+
 \- Sonho em conhecer o mundo, mas detesto viagens longas e queria que já existisse um transportador de matéria.
 
 Objetivos ao Terminar o Curso
 
-\- Criar uma startup para popularização da análise de dados em saúde.
+\- Entrar na área de análise de dados e auxiliar na popularização da análise de dados em saúde.
 
 Espero que tenha gostado de saber um pouco mais sobre mim! Vamos nos conectar e construir algo incrível juntos!
 
