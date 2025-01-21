@@ -20,9 +20,6 @@ Curiosidades Divertidas 🎉
 
 \- Sonho em conhecer o mundo, mas detesto viagens longas e queria que já existisse um transportador de matéria.
 
-Objetivos ao Terminar o Curso
-
-\- Entrar na área de análise e ciência de dados auxiliando na popularização de bancos dados em saúde.
 
 Espero que tenha gostado de saber um pouco mais sobre mim! Vamos nos conectar e construir algo incrível juntos!
 
